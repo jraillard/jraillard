@@ -13,7 +13,7 @@ You may have notice that my Github profile picture is a [Squirtle](https://www.p
 
 As i was a child, he used to be my favorite pokemon starter.
 
-So i take the decision to make it my profile picture in almost all tech-relative accounts i have, and then update it as [Wartortle](https://www.pokepedia.fr/Carabaffe) and [Blastoise](https://www.pokepedia.fr/Tortank) as i would progress in my developper career.
+So i take the decision to make it my profile picture in almost all tech-relative accounts I have, and then update it as [Wartortle](https://www.pokepedia.fr/Carabaffe) and [Blastoise](https://www.pokepedia.fr/Tortank) as I would progress in my developper career.
 
 Funny right ? :grin:
 
